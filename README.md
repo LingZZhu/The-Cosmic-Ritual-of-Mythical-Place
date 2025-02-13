@@ -1,1 +1,1 @@
-# The-Ritual-of-Mythical-Place
+# The-Cosmic-Ritual-of-Mythical-Place
